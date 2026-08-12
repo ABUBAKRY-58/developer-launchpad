@@ -1,2 +1,3 @@
 Abubakry Adeshina 
-i love Amala
+i love that food so much
+i play left wing
