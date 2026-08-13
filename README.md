@@ -1,3 +1,1 @@
-Abubakry Adeshina 
-i love that food so much
-i play left wing
+My name is Abubakry Adeshina
